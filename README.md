@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NeltudOne
+- 👋 Hi, I’m Nelson @NeltudOne
 - 👀 I’m interested in artistic NFTs / on Elrond Network
 - 🌱 I’m currently learning tokenomics economy
 - 💞️ I’m looking to collaborate on my project https://app.gitbook.com/s/ALmmbWIPUmzSPP1ae7mv/
